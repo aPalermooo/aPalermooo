@@ -1,4 +1,10 @@
-### Hi there 👋
+### Hello !!
+I am a Computer Science student studying at Missouri State University and I am class of 2026
+🐻🐻🐻🐻
+
+My Pronouns are he/him
+
+bye bye 🩷
 
 <!--
 **aPalermooo/aPalermooo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
